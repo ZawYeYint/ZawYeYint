@@ -12,4 +12,5 @@
  -📫 How to reach me: dont
  -😄 Pronouns: he/him
  -⚡ Fun fact: im fun thats a fact c; 
+ Yes
 
